@@ -1,3 +1,3 @@
 # EMAIL-CAMPAIGN
 Video demo link:
-Dreamy catchers successful video final part (1).mp4 - Google Drive
+https://drive.google.com/file/d/1EiuEWm9Ho_5QlZggZYLvPUG0szDCjsPc/view
